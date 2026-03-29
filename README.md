@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=ECL1PSE-IRL&style=plastic&color=272FA8&label=+🎀+)
 
-</div>
+<div align=center>
 
-
+${\color{#293089} "AWOOO!"}$
 
 <img width="1806" height="1079" alt="image" src="https://github.com/user-attachments/assets/47562adc-846d-4380-b7d0-803b70acb9cd" /> 
 <details align=middle>
